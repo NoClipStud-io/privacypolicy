@@ -1,2 +1,2 @@
 # privacypolicy
-Privacy Policy
+https://sites.google.com/view/dbsearch-privacypolicy
